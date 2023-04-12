@@ -1,1 +1,1 @@
-# Intelig-ncia-de-mercado
+# Inteligencia-de-mercado
